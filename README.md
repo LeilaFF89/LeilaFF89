@@ -1,4 +1,4 @@
-## Bachelor in Computer Engineering, Computer Network and Data Science Student.
+## Bachelor in Computer Engineering, Computer Network Specialist and Data Scientist.
 
 ### Welcome to my profile ®️
 
@@ -23,8 +23,11 @@
 </br>
 ### Education:
 Bachelor in Computer Engineering
+
 Computer Network Specialist
+
 Master's Student in Computer Network
+
 Data Scientist
 
 ## Open to new experiences!
