@@ -1,4 +1,4 @@
-## Bachelor in Computer Engineering, Computer Network Specialist and Data Scientist.
+## Bachelor in Computer Engineering, Computer Network Specialist and Data Scientist Jr.
 
 ### Welcome to my profile ®️
 
